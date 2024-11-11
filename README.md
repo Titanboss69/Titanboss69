@@ -1,9 +1,8 @@
 Yo mayday Titan here- 👋 Hi, I’m @Titanboss69
-- 👀 I’m interested in only 2d Gamedev in python java and c
- I’m currently learning Gamedev 
+- 👀 I’m interested in only 2d Gamedev in python java and c,
+ I’m currently learning Gamedev,
  💞️ I’m looking to collaborate on gamedev
-INSTA ID titan_thebossss-
-Titan- 😄 
+,, INSTA ID titan_thebossss - 😄 
 Fav no. 69 
 
 <!---
